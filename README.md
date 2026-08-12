@@ -1,6 +1,6 @@
+![Product Manager | ERP, E-commerce & Fintech | Product Strategy • Roadmaps • Agile • Digital Products](https://media.licdn.com/dms/image/v2/D5616AQH9qpK2jeDCtw/profile-displaybackgroundimage-shrink_350_1400/B56Z.QpyuEKkAU-/0/1784838302928?e=1788393600&v=beta&t=SQdufv-_l-rjx_L42MHeKXkXcByqTI0x-N-qtfQpVIs)
 ### Hi there 👋, I'm Anika Tasnim
 #### Product Manager | ERP, E-commerce & Fintech | Product Strategy • Roadmaps • Agile • Digital Products
-![Product Manager | ERP, E-commerce & Fintech | Product Strategy • Roadmaps • Agile • Digital Products](https://media.licdn.com/dms/image/v2/D5616AQH9qpK2jeDCtw/profile-displaybackgroundimage-shrink_350_1400/B56Z.QpyuEKkAU-/0/1784838302928?e=1788393600&v=beta&t=SQdufv-_l-rjx_L42MHeKXkXcByqTI0x-N-qtfQpVIs)
 
 Product Manager focused on ERP, e-commerce, fintech, and digital products. Experienced in product strategy, roadmap ownership, Agile delivery, UX, process optimization, and cross-functional leadership. I enjoy turning complex business needs into simple, scalable technology solutions that create measurable impact and lasting value today.
 
